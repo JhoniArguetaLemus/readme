@@ -1,1 +1,1 @@
-# readme
+Integrantes: José Jhonis Argueta Lemus
